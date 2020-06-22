@@ -1,2 +1,0 @@
-# nanda1
-kdfvnjvbxcjhvbxcjvbchx
